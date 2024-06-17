@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alixtkat
 - 👀 I’m interested in accessible and voice controlled UX/UI.
 - 🌱 I’m currently learning all about ux.
-- 💞️ I’m looking to collaborate on creaing designs that avoid overwhelm. 
+- 💞️ I’m looking to collaborate on creating designs adn expirinces that avoid overwhelm. 
 - 📫 How to reach me alixtkat@gmail.com
 
 - 😄 Pronouns: she/her
